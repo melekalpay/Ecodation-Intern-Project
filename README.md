@@ -1,0 +1,5 @@
+![Ekran görüntüsü 2022-10-14 183931](https://user-images.githubusercontent.com/87402024/195889744-1f3c2e97-965d-4bb3-9fb9-2e7329cbfd9d.png)
+![Ekran görüntüsü 2022-10-14 184006](https://user-images.githubusercontent.com/87402024/195889780-4962ead3-b099-40a3-a220-afc6c7ca5f2e.png)
+![Ekran görüntüsü 2022-10-14 184028](https://user-images.githubusercontent.com/87402024/195889801-725e5b7b-6f55-4567-97ec-837d56f2cf9b.png)
+![Ekran görüntüsü 2022-10-14 184212](https://user-images.githubusercontent.com/87402024/195889837-58126405-d833-4fd5-b2ef-042c77e4b783.png)
+![Ekran görüntüsü 2022-10-14 184301](https://user-images.githubusercontent.com/87402024/195889890-3d89f03f-1d67-44af-8071-cb114ba94181.png)
